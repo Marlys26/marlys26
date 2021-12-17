@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **marlysrc@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1NwvKrYHsOGGmnHYprFxBALxYgKNBE-zS/view?usp=sharing](https://drive.google.com/file/d/1NwvKrYHsOGGmnHYprFxBALxYgKNBE-zS/view?usp=sharing)
+- 📄 Know about my experiences [https://bit.ly/3p2Uxew](https://bit.ly/3p2Uxew)
 
 - ⚡ Fun fact **I love making and decorating cakes 🎂**
 

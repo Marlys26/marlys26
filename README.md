@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Marlys</h1>
 <h3 align="center">A passionate frontend developer from Colombia</h3>
 
-- 🌱 I’m currently learning **Hubspot**
+- 🌱 I’m currently learning **Angular**
 
 - 📫 How to reach me **marlysrc@gmail.com**
 
